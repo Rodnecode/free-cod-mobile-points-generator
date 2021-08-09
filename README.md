@@ -1,2 +1,5 @@
-# free-cod-mobile-points-generator
-Free COD mobile points generator 2021 no verification with free cp glitch
+# Free COD mobile points generator 2021 no verification with free cp glitch
+
+Free COD mobile points generator 2021 no verification with free cp glitch - Remember, in terms of skills, the goal is to be able to do what you really want to do without paying attention to virtual buttons. Being able to jump, shoot and reload at will is one of the most basic conditions for you to become the dominant force in the game. There is no better place to obtain this free cp skill in cod mobile than practice class. In addition, trying to improve mobility and avoid becoming an easy goal is also a skill that must be learned. The other half of practicing as much as possible in the game is to learn as much about each map as possible. Although call of duty veterans may be familiar with some maps available in the game, in every competitive FPS game, it is important to have a complete psychological layout on each battlefield of each avatar. Of course, considering that there may be differences in the ports of fans' favorite maps on the mobile phone, get to know yourself again, or if you are completely a beginner, being familiar with each map in the game will dominate each map.
+
+<a href="https://djclubber.com/codmobile/">try here</a>
